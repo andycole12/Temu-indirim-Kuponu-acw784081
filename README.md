@@ -1,8 +1,7 @@
 # Temu İndirim Kodu “acw784081” ile Avantajlı Alışveriş Rehberi (2025 Güncel)
 
-![Temu İndirim Kodu acw784081](./assets/temu-indirim-kodu-acw784081.png)
 
-## Meta Açıklama  
+## Açıklama  
 Temu indirim kodu **acw784081** ile %30 indirim, ücretsiz ürünler ve kupon fırsatlarını kaçırmayın! Yeni kullanıcılar için rehber niteliğinde detaylı bilgiler burada.
 
 ---

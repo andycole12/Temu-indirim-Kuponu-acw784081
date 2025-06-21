@@ -1,4 +1,4 @@
-# Temu İndirim Kodu “acw784081” ile Avantajlı Alışveriş Rehberi (2025 Güncel)
+# Temu İndirim Kodu “acw784081” ile Avantajlı Alışveriş Rehberi (2025 Haziran Güncellemesi)
 
 
 ## Açıklama  
